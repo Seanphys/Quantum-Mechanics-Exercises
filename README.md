@@ -1,1 +1,1 @@
-This is for learning purposes only. Commercial use is prohibited. If there are any corrections, please contact via Gmail or iCloud email.
+This is for learning purposes only. Commercial use is prohibited. If there are any corrections, please contact via Gmail or iCloud email. By the way, the reader is required to prepare a textbook.《量子力学教程》-周世勋，version 2 or 3.
